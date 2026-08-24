@@ -1,2 +1,0 @@
-# trnil-OSKcnsk
-Batch created
